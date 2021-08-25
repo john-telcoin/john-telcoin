@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @john-telcoin
+- 👀 I’m interested in 3D printing
+- 🌱 I’m currently learning HR
+- 💞️ I’m looking to collaborate on anything that can help me learn more
+- 📫 How to reach me: john@telco.in
